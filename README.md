@@ -1,1 +1,0 @@
-# RulerSama.github.io
